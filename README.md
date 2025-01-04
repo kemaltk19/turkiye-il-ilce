@@ -1,5 +1,7 @@
 Türkiye Güncel Adres Verileri | İl, İlçe, Mahalle, Köy, Sokak ve Bina Bilgileri
 
+HER AY GÜNCELLENMEKTEDİR.
+
 2025 yılına ait Türkiye’nin il, ilçe, mahalle, köy, sokak, cadde ve bina adres bilgileri her ay düzenli olarak güncellenmektedir. İşletmeniz için güvenilir, detaylı ve güncel adres verilerine kolayca ulaşın.
 
 Verilerimiz:
@@ -13,3 +15,5 @@ Detaylar ve satın alma için bizimle iletişime geçin:
 📞 532 653 91 48
 
 Türkiye’nin en güncel adres verilerini edinin! 🚀
+
+HER AY GÜNCELLENMEKTEDİR.
